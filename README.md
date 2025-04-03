@@ -35,4 +35,4 @@ Used visuals to create interactive dashboards to display relevant information to
 
 ![power bi dash](https://github.com/user-attachments/assets/3e535395-74f7-42e5-ba18-e0dd12b7e7c2)
 -----
-
+Let’s connect! 👉 LinkedIn: www.linkedin.com/in/oliver-telford
